@@ -1,0 +1,1 @@
+This is for the group of myself, Christopher Tiso, and Robert Stahl. The first word is Xunantunich which is a mayan archeological site. The second word is the fear of halloween which is Samhainophobia. The third part put all the letter in alphabetical order, and the last word was agathokakologic which is a word that describes something that has good and evil.
